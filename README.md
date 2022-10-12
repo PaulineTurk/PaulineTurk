@@ -1,1 +1,2 @@
-Hi, I’m PaulineTurk and I’m interested in bioinformatics :)
+Hi, I’m PaulineTurk and I am a biostar in progress !
+
